@@ -1,4 +1,4 @@
-# **[](https://upload.wikimedia.org/wikipedia/commons/f/f8/Bibhutibhushan_Bandopadhyay.jpg)** 
+![](https://upload.wikimedia.org/wikipedia/commons/f/f8/Bibhutibhushan_Bandopadhyay.jpg)
 
 \---page---  
 সকালবেলা বৈঠকখানার গাছপালার হাটে ঘুরছিলাম।  
